@@ -1,4 +1,4 @@
-                        ☀️Olá, somo a FlosNexu e essa é a nossa forma de mudar o mundo!☀️
+                        ☀️Olá, somos a FlosNexu e essa é a nossa forma de mudar o mundo!☀️
  
 🔋Quem Somos: Uma empresa de Marketplace que facilita a contratação e acesso a energia limpa, possibilitando que os interessados em alterar para uma energia mais sustentável tenha uma plataforma que conecte mais rápido sem precisar procurar empresa por empresa!🔋 
 
